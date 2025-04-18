@@ -2,5 +2,4 @@
 
 OLD SWK ICON HERE^^
 
-NEW ICON
-[^-^](https://github.com/NEW-SWK/new-swk-icon)
+NEW ICON 2025/4 〜
